@@ -12,5 +12,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art!
 Here we are...
 
-[IG](https://www.google.com/search?q=instagram+logo&source=lnms&tbm=isch&sa=X&ved=2ahUKEwigpveo8ID6AhWnO7kGHfqtC4wQ_AUoAXoECAEQAw&biw=1280&bih=700&dpr=2#imgrc=XWNisCAQKac3ZM)
 [Instagram](https://www.instagram.com/sonny_orellana/)

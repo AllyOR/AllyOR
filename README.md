@@ -11,3 +11,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://linktr.ee/AllyOR
 - ⚡ Fun fact: I love every kind of art!
 Here we are...
+
+[Instagram](https://www.instagram.com/sonny_orellana/)

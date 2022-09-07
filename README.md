@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art!
 Here we are...
 
-[Instagram](https://www.instagram.com/sonny_orellana/)
+[Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios)

@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning and improving some of my Software skills and Development.
 - 📫 To reach me: https://linktr.ee/AllyOR .
 - ⚡ Fun fact: I love every kind of art!
-Here we are ...
+After all, here we are ...
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

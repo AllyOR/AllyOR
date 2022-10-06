@@ -12,6 +12,7 @@ Here are some ideas to get you started:
 - 📫 To reach me: https://linktr.ee/AllyOR.
 - ⚡ Fun fact: I love every kind of art!
 After all, here we are ...
+
 I appreciate real people.
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 

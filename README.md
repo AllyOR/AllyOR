@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art!
 After all, here we are ...
 
-I appreciate real people.
+I really appreciate real people.
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

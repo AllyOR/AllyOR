@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning and improving some Software skills and Development.
 - 📫 To reach me: https://linktr.ee/AllyOR.
 - ⚡ Fun fact: I love every kind of art!
-After all, here we are! ..
+And after all, here we are! ..
 
 I really appreciate real people.
 

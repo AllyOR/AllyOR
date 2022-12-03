@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 -->
-- ✨ Master in Design and Multimedia Production.
+- ✨ University Master in Design and Multimedia Production.
 - :pushpin: Computer Engineer - Universidad Mayor de San Simón (Bolivia).
 - 🔭 I’m currently the Lead Organizer of PyLadies Cochabamba's Community (Bolivia).
 - 🌱 I’m currently learning and improving some Software skills and Development.

@@ -12,7 +12,8 @@ Here are some ideas to get you started:
 - 📫 To reach me: https://linktr.ee/AllyOR.
 - ⚡ Fun fact: I love every kind of art!
 
-And after all of this.. Here we are.. and here we go!
+And after all of this.. This is a beginning
+Here we are.. and here we go!
 
 I really appreciate real people. 
 

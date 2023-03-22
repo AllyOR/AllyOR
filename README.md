@@ -13,9 +13,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art
 
 And after all of this.. This is a beginning..
-Here we are.. and here we go..
+Here we are.. and here we go.
 
-I really appreciate real people. 
+I appreciate real people. 
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

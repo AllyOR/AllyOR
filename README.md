@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 🔭 I’m currently the Lead Organizer of PyLadies Cochabamba's Community (Bolivia).
 - 🌱 I’m currently learning and improving some Software skills and Development.
 - 📫 To reach me: https://linktr.ee/AllyOR.
-- ⚡ Fun fact: I love every kind of art
+- ⚡ Fun fact: I love every kind of art.
 
 And after all of this.. This is a beginning
 Here we are and here we go.

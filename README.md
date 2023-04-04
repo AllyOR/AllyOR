@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 📫 To reach me: https://linktr.ee/AllyOR.
 - ⚡ Fun fact: I love every kind of art.
 
-And after all of this.. This is a beginning
+And after all of this... This is a beginning
 Here we are and here we go.
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 

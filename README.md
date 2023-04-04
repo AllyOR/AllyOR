@@ -17,4 +17,4 @@ Here we are and here we go.
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||
-[Twitter](https://www.twitter.com/ALLY_OR_ENEMY/) .
+[Twitter](https://www.twitter.com/ALLY_OR_ENEMY/).

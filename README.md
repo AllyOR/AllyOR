@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 💻 Some projects: https://wlo.link/@AllyOR.
 - ⚡ Fun fact: I love every kind of art.
 
-And after all .. What?
+And after all .. What's going on?
 Here we are and here we go.
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 

@@ -14,7 +14,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art.
 
 And after all ... What's going on?
-Here we are and here we go ..
+
+Anyway here we are and here we go ..
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

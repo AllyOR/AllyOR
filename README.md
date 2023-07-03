@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 
 And after all ... What's going on?
 
-Anyway here we are and here we go ..
+Anyway here we are and here we go ...
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

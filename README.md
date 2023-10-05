@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - ✨ University Master in Design and Multimedia Production.
 - :pushpin: Computer Engineer - UMSS (Bolivia).
 - 🔭 I’m currently an Organizer of PyLadies Cochabamba's Community (Bolivia).
-- 🪷 I’m currently a Women Techmaker Ambassador.
+- 🪷 I’m currently a Women Techmaker Ambassador (Google).
 - 🌱 I’m currently learning and improving some Software skills and Development.
 - 📫 To reach me: https://linktr.ee/AllyOR.
 - 💻 Some projects: https://wlo.link/@AllyOR.

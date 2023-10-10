@@ -14,9 +14,9 @@ Here are some ideas to get you started:
 - 💻 Some projects: https://wlo.link/@AllyOR.
 - ⚡ Fun fact: I love every kind of art ...
 
-And after all .. What's going on ..?
+And after all .. 
 
-Here we are and ..well, here we go ..
+Here we are and ..well, finally HERE I GO!!!
 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||

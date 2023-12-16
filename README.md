@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 -->
-... In Progress... but nearer... !?
+... In Progress... but nearer.. !?
 - </> Software Developer.
 - ✨ University Master in Design and Multimedia Production.
 - :pushpin: Computer Engineer - UMSS (Bolivia).

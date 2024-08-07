@@ -7,8 +7,8 @@ Here are some ideas to get you started:
 -->
 ... In Progress!...
 - </> Software Developer.
-- ✨ University Master in Design and Multimedia Production.
-- :pushpin: Computer Engineer - UMSS (Bolivia).
+- ✨ Master.
+- :pushpin: MSc. Computer Engineer - UMSS (Bolivia).
 - 🔭 I’m an Organizer of PyLadies Cochabamba's Community (Bolivia).
 - 🪷 I’m a Women Techmaker Ambassador (Google).
 - 🌱 I’m learning and improving some Software skills and Development.

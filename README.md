@@ -9,6 +9,7 @@ Here are some ideas to get you started:
 - </> Software Developer.
 - ✨ Master.
 - :pushpin: MSc. Computer Engineer - UMSS (Bolivia).
+- ☁️ I’m a Lead of AWS User Group Cochabamba.
 - 🔭 I’m an Organizer of PyLadies Cochabamba's Community (Bolivia).
 - 🪷 I’m a Women Techmaker Ambassador (Google).
 - 🌱 I’m learning and improving some Software skills and Development.
@@ -17,9 +18,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I love every kind of art ...
 
 And after all ...
+Here we!
 
-Here we are and ..well, finally HERE I GO!!!
-
+[WebPage](https://allyor.github.io/) || 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||
 [Twitter](https://www.twitter.com/ALLY_OR_ENEMY/).

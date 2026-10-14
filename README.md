@@ -12,15 +12,15 @@ Here are some ideas to get you started:
 - ☁️ I’m a Lead of AWS User Group Cochabamba.
 - 🔭 I’m an Organizer of PyLadies Cochabamba's Community (Bolivia).
 - 🪷 I’m a Women Techmaker Ambassador (Google).
-- 🌱 I’m learning and improving some Software skills and Development.
-- 📫 To reach me: https://linktr.ee/AllyOR.
-- 💻 Some projects: https://wlo.link/@AllyOR.
+- 🌱 I’m learning and improving some Software Development skills.
+- 📫 To reach me: [https://linktr.ee/AllyOR](https://linktr.ee/AllyOR).
+- 💻 Some projects: [https://wlo.link/@AllyOR](https://beacons.ai/allyor).
 - ⚡ Fun fact: I love every kind of art ...
 
 And after all ...
-Here we!
+Here we are!
 
-[WebPage](https://allyor.github.io/) || 
+[Website](https://allyor.github.io/) || 
 [Instagram](https://www.instagram.com/sonny_orellana/) || 
 [YouTube](https://www.youtube.com/c/AlisonOrellanaRios) ||
-[Twitter](https://www.twitter.com/ALLY_OR_ENEMY/).
+[X](https://x.com/ALLY_OR_ENEMY).

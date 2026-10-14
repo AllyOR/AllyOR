@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 🪷 I’m a Women Techmaker Ambassador (Google).
 - 🌱 I’m learning and improving some Software Development skills.
 - 📫 To reach me: [https://linktr.ee/AllyOR](https://linktr.ee/AllyOR).
-- 💻 Some projects: [https://wlo.link/@AllyOR](https://beacons.ai/allyor).
+- 💻 Some projects: [https://beacons.ai/allyor](https://beacons.ai/allyor).
 - ⚡ Fun fact: I love every kind of art ...
 
 And after all ...
